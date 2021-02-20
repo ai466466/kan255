@@ -9,14 +9,14 @@
 本站最新备用地址，请注意收藏
 手机请长按链接复制，用手机浏览器打开。
 
-*备用一：
-*https://dsnfpb.com
-*备用二：
-*https://sncdh.com
-*备用三：
-*https://fpbasn.com
-*备用四：
-*https://bsndh.com
+* 备用一：
+* https://dsnfpb.com
+* 备用二：
+* https://sncdh.com
+* 备用三：
+* https://fpbasn.com
+* 备用四：
+* https://bsndh.com
 
 方法2：邮件回复
 ---------------
