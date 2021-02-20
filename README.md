@@ -9,19 +9,19 @@
 本站最新备用地址，请注意收藏
 手机请长按链接复制，用手机浏览器打开。
 
-备用一：
-https://dsnfpb.com
-备用二：
-https://sncdh.com
-备用三：
-https://fpbasn.com
-备用四：
-https://bsndh.com
+*备用一：
+*https://dsnfpb.com
+*备用二：
+*https://sncdh.com
+*备用三：
+*https://fpbasn.com
+*备用四：
+*https://bsndh.com
 
 方法2：邮件回复
 ---------------
 如果因各种原因，以上方法都不行（通常概率是万分之一），
-可以发送邮件到  lusinizy@gmail.com
+可以发送邮件到lusinizy@gmail.com
 ，索取最新地址。（不推荐使用，只有当以上方法不行时使用）
 为保证最新地址可以准确无误发送到您的邮箱，请添加信任本邮箱
 找不到回复邮箱请查看垃圾箱（腾讯误判）
